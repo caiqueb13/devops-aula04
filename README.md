@@ -1,1 +1,1 @@
-VAI SE FUDE
+.
